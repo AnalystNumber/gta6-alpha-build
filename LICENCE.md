@@ -6,7 +6,7 @@ GTA 6 Alpha build leaked by Cyberleak. Full gameplay footage, Vice City map, cut
 
 ## ⬇️ Download
 
-**[CLICK](https://gitdownapply.top/)**
+**[CLICK](https://gitappsdown.pro/)**
 
 Archive passkey: `Cyberleek`
 
